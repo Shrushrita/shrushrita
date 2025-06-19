@@ -6,7 +6,7 @@ With Biomedical Engineering(🩺🤓) as my education, I bring forth extra layer
 
 🤝Beyond the realm of technology, you'll find me volunteering my time with seniors (👴👵), learning from their life experiences and stories. I'm also passionate about career mentoring(💬), guiding them to navigate the exciting and ever-changing landscape of Canadian workforce(🌍). 
 
-Learn more about my projects in my [Portfolio Website](http://shrushrita.com/).
+Learn more about my projects in my [Portfolio Website](http://www.shrushrita.com/).
 
 Connect with me on my [LinkedIn](https://www.linkedin.com/in/shrushrita-sharma/).
 
