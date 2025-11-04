@@ -8,6 +8,6 @@ With Biomedical Engineering(🩺🤓) as my education, I bring forth extra layer
 
 Learn more about my projects in my [Portfolio Website](http://www.shrushrita.com/).
 
-Connect with me on my [LinkedIn](https://www.linkedin.com/in/shrushrita-sharma/).
+Connect with me on my [LinkedIn](https://www.linkedin.com/in/shrushrita/).
 
 #QAPro #BiomedEngineer #CareerMentor
